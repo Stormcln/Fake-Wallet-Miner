@@ -5,5 +5,4 @@ https://github.com/Stormcln/Fake-Wallet-miner
 
 
 made By ! 𝑆𝑡𝑜𝑟𝑚⛈#0406
-https://discord.gg/kp24RCkhhy StormGame
-https://discord.gg/YYhtzZjU2A Real Infinity Cheats
+(https://discord.gg/6beVEhccaa)
